@@ -12,7 +12,7 @@
 
 #### Question 1
 
-Ajjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+อะไรครับเนี่ย
 
 #### Question 2
 
